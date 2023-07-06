@@ -1,1 +1,1 @@
-## Chán môn này lắm.
+## Passed.
